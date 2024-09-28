@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with Developers
 - 📫 How to reach me https://www.instagram.com/_nicarson?igsh=eWtmYzI0M3l2bmYx
 - 😄 Pronouns: Him
-- ⚡ Fun fact: I can put a smile on your 😔
+- ⚡ Fun fact: I can put a smile on your face 😔
 
 <!---I am Also a student in Masinde Muliro University Of Science and Technology 
 I can do pickup a lines
