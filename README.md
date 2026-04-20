@@ -1,13 +1,13 @@
-- 👋 Hi, I’m @Nicarson (Kimutai Erastus) 
-- 👀 I’m interested in Tech
+- 👋 Hi, I’m Kimutai Erastus (Nicarson_Hub)
+- 👀 Enterprising and Technical Individuals with an Ambitious vision for the future
 - 🌱 I’m currently learning Information Technology 
-- 💞️ I’m looking to collaborate with Developers
+- 💞️ I’m looking forwarding to collaborate with Developers Across Africa and The rest Worldwide
 - 📫 How to reach me https://www.instagram.com/nicarson_hub?igsh=bjQxNXRxYnVkeGVu
 - 😄 Pronouns: Him
-- ⚡ Fun fact: I can put a smile on your face 😔
+- ⚡ Fun fact: The Village Tech Mogul
 
-<!---I am Also a student in Masinde Muliro University Of Science and Technology 
-I can do pickup a lines
+<!---I am  a student in Masinde Muliro University Of Science and Technology 
+
 Nicarson/Nicarson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
