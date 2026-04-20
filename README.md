@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech
 - 🌱 I’m currently learning Information Technology 
 - 💞️ I’m looking to collaborate with Developers
-- 📫 How to reach me https://www.instagram.com/_nicarson?igsh=eWtmYzI0M3l2bmYx
+- 📫 How to reach me https://www.instagram.com/nicarson_hub?igsh=bjQxNXRxYnVkeGVu
 - 😄 Pronouns: Him
 - ⚡ Fun fact: I can put a smile on your face 😔
 
